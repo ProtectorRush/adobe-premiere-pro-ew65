@@ -1,4 +1,4 @@
-
+secure Adobe Premiere Pro for macOS Template | 4K-export + noise-reduction offers the most advanced Adobe Premiere Pro for macOS template, with 4K-export and noise-reduction.
 
 
 
